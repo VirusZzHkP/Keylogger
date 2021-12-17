@@ -68,5 +68,5 @@ Cheers!❤
 -VirusZZWarning
 
 Connect to me:<br>
-[GitHub](https://github.com/VirusZzHkP/) <br>
+[Blogs on Medium](https://viruszzwarning.medium.com) <br>
 [LinkedIn](https://www.linkedin.com/in/viruszzwarning/)
