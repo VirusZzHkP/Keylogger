@@ -67,6 +67,6 @@ Enjoy!!
 Cheers!❤
 -VirusZZWarning
 
-    Connect to me:
-    GitHub
-    LinkedIn
+Connect to me:<br>
+[GitHub](https://github.com/VirusZzHkP/) <br>
+[LinkedIn](https://www.linkedin.com/in/viruszzwarning/)
